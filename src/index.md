@@ -1,0 +1,1 @@
+hello stone world! i am a rock
